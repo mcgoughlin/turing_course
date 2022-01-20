@@ -1,2 +1,2 @@
-Tryfan
+Tryfan /n
 Yr Wyddfa
